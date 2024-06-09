@@ -1,7 +1,7 @@
-## Hello there!👋
+## Welcome to my hub!👋
 
 
-## **I am a Digital Marketing Specialist**
+## **I am a Digital Marketing Specialist/Data Analyst Enthusiast**
 
 Here are some ideas about me to get you started:
 -  I'm presently honing my fundamental skills in data analytics by engaging in micro projects... 
@@ -23,3 +23,5 @@ Here are some ideas about me to get you started:
 - Customer Service Expert
 - Typing
 
+## My motto;
+> Be the best version of yourself, so that you won't be found wanting when opportunities come knocking!
