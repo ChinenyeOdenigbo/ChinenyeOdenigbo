@@ -10,7 +10,7 @@ Here are some ideas about me to get you started:
 - I'm seeking to complete my online courses on data analytics and an *upskill* digital marketing course to enable me to take on new projects/gigs.
 - Ask me about digital marketing and social media management.
 - 📫 How to reach me:[ LinkedIn ](https://www.linkedin.com/in/chinenye-odenigbo-a32a7884?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
-- My portfolio: [My Services](https://mainstack.me/jlhnetwork))
+- My portfolio: [My Services](https://mainstack.me/jlhnetwork)
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love watching movies and going on solo dates...
 
